@@ -59,7 +59,7 @@ sobrevivir al desierto, fenómenos desconocido.
 
 ### Productos
 
-- Personaje: (img personaje y enlace a interactivo) 
+- Personaje: https://elmarblanco.h5p.com/content/1291599859263796187 
 
 - Banner/Teaser:  (enlace) 
 
